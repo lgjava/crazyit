@@ -1,1 +1,1 @@
-aaa
+crazyit.org站点的重定向
